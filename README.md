@@ -1,1 +1,1 @@
-SkillFactory Home Work B 5.6
+SkillFactory Home Work
